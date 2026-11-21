@@ -2,6 +2,9 @@
 
 # 【雪板测评】Rossignol Hero Elite ST Ti Limited Edition 2023
 
+> 原文：[知乎 · 阿拉布](https://zhuanlan.zhihu.com/p/669580623)　·　发布于 2023-11-30　·　本文仅供学习交流，版权归原作者所有
+
+
 ROSSIGNOL卢西诺Hero Elite ST TI 限量版 滑雪板是一款大师级竞技回转板/卡宾小弯板，也就是国人通常所说的“民顶小回板”，在ROSSIGNOL卢西诺产品线中，它的位置仅在专业竞技回转板Hero Athlete FIS SL和Hero Master ST之下，是毫无疑问的民用顶级（小）回转雪板。
 
 ![图片 1: 图 1](../media/669580623_01.jpg)

@@ -2,6 +2,9 @@
 
 # 【雪板测评】为贴地而生 Rossignol Forza 70°+ V-Ti Master 2024
 
+> 原文：[知乎 · 阿拉布](https://zhuanlan.zhihu.com/p/671016733)　·　发布于 2023-12-07　·　本文仅供学习交流，版权归原作者所有
+
+
 作为Rossignol 2024 新雪道板Forza系列的旗舰产品，Forza 70°+由Forza 70° V-TI板身和Master系列所使用的SPX 14竞技垫板固定器组合而成。版面涂装虽然低调，但是靓丽的板底十分扎眼。
 
 ![图片 1: 图 1](../media/671016733_01.jpg)

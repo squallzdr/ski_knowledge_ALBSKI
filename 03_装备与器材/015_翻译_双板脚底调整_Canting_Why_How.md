@@ -2,6 +2,9 @@
 
 # 【翻译】双板脚底调整 Canting：Why & How
 
+> 原文：[知乎 · 阿拉布](https://zhuanlan.zhihu.com/p/42383206)　·　发布于 2018-08-27　·　本文仅供学习交流，版权归原作者所有
+
+
 本文翻译自Cantology网站的介绍文章 The 'Why' of Canting 和 The 'How' of Canting 。Cantology是一家专业生产双板脚底调整垫片和调整鞋底的商业机构。
 
 ## 为何需要调整脚底的侧倾角（Canting）

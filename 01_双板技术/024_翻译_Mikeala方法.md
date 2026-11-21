@@ -2,6 +2,9 @@
 
 # 【翻译】Mikeala方法
 
+> 原文：[知乎 · 阿拉布](https://zhuanlan.zhihu.com/p/101897339)　·　发布于 2020-01-09　·　本文仅供学习交流，版权归原作者所有
+
+
 本文由Mikeala家庭密友，资深竞技滑雪发展的赞助和管理者Dan Leaver于2020年1月1日发表于Ski Racing 的 Fall Line 专栏。由阿拉布未授权翻译，因为联系作者的途径是Facebook，Twitter，GoogleMail，本布无能为力了。
 
 进入2020年成为Ski Racing Media的新所有者，我想以新的名字-Fall Line重新介绍“Black Diamond”专栏。Ski Racing的长期所有者兼首席执行官加里·布莱克（Gary Black Jr.）用这个专栏来讨论对竞技滑雪界至关重要的事项。我将定期以这种格式投稿，尤其是以我对北美滑雪比赛的发展及其在世界舞台上取得成功的热情。在这方面，我认为写一写北美目前首席运动员的文章是合适的。她的方法和到达顶部的道路可以为所有人参考。

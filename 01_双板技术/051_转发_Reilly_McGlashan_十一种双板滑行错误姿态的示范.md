@@ -2,6 +2,9 @@
 
 # 【转发】Reilly McGlashan：十一种双板滑行错误姿态的示范
 
+> 原文：[知乎 · 阿拉布](https://zhuanlan.zhihu.com/p/596757888)　·　发布于 2023-01-05　·　本文仅供学习交流，版权归原作者所有
+
+
 本文基于个人理解，对Reilly McGlashan 为他在线指导项目做的推广视频 what is your skiing mistake 稍作说明。
 
 ### 1-后座
